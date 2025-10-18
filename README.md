@@ -1,1 +1,0 @@
-\# G r u p o 1Actualizado desde la rama ActualizarReadme
